@@ -1,3 +1,5 @@
-# Welcome to my blog
+# Welcome to my humble aboard
 
-I'm glad you are here. I plan to talk about ...
+What a long day.
+My condition can't be better.
+Should I change my notebook battery? It doesn't seem to explode so soon.
